@@ -1,5 +1,5 @@
 # わいたまりーぐ 第6シーズン MAX主催 クリエイター凸待ち
-配信枠: https://youtube.com/live/4EshXVkuqC4?feature=share
+配信枠: [【#わいたまりーぐ】第6シーズン 応募者凸待ち！【MAX / VTuber】](https://youtube.com/live/4EshXVkuqC4?feature=share)
 
 # 凸待ちスケジュール
 
